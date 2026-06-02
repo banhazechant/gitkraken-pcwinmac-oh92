@@ -1,4 +1,4 @@
-# 
+# Código aberto GitKraken predefinições para Mac OS | Melhor GitKraken predefinições para PC Windows. Com depurador e integração Git — otimizado para máximo desempenho em cada plataforma.
 
 
 
